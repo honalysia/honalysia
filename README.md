@@ -13,7 +13,7 @@
 ╰┈➤ k-on fan , minori & kanade yume , multishipper ![](https://64.media.tumblr.com/a397167b4783e0dfa1abed5d3e7280e6/d5ed8321db4bd7a6-72/s75x75_c1/13597f976b730f4539caf87a485dec82f6862482.gif)
 
 
-[atabook](https://honalysia.atabook.org) , [random song](https://www.youtube.com/watch?v=B7BxrAAXl94) , [strawpage](https://www.youtube.com/watch?v=gXPxYzJCU4I)
+[atabook](https://honalysia.atabook.org) , [random song](https://www.youtube.com/watch?v=IYi3pLHGEo0&list=RDIYi3pLHGEo0&start_radio=1) , [strawpage](https://www.youtube.com/watch?v=gXPxYzJCU4I)
 
 
 ╭───────── · · ![](https://64.media.tumblr.com/4c8c3b05c6d133e8ace28492895901ba/d5ed8321db4bd7a6-aa/s75x75_c1/6ffbe7f0f6271509f8c0aff15f5e49cb0aafa6d6.gif) · · ─────────╮
