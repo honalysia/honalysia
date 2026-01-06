@@ -18,7 +18,7 @@
 
 ╭───────── · · ![](https://64.media.tumblr.com/4c8c3b05c6d133e8ace28492895901ba/d5ed8321db4bd7a6-aa/s75x75_c1/6ffbe7f0f6271509f8c0aff15f5e49cb0aafa6d6.gif) · · ─────────╮
 
-![](https://files.catbox.moe/4eau1f.gif) ![](https://files.catbox.moe/q2nph3.gif) ![](https://s3.ezgif.com/tmp/ezgif-3c6cb0da345a383c.gif)
+![](https://files.catbox.moe/4eau1f.gif) ![](https://files.catbox.moe/q2nph3.gif) ![](https://files.catbox.moe/ct87yh.gif)
 
 ╰───────── · · ![](https://64.media.tumblr.com/4c8c3b05c6d133e8ace28492895901ba/d5ed8321db4bd7a6-aa/s75x75_c1/6ffbe7f0f6271509f8c0aff15f5e49cb0aafa6d6.gif) · · ─────────╯
 
