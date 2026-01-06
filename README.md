@@ -13,12 +13,12 @@
 ╰┈➤ k-on fan , minori & kanade yume , multishipper ![](https://64.media.tumblr.com/a397167b4783e0dfa1abed5d3e7280e6/d5ed8321db4bd7a6-72/s75x75_c1/13597f976b730f4539caf87a485dec82f6862482.gif)
 
 
-[atabook](https://honalysia.atabook.org) , [fav song](https://www.youtube.com/watch?v=B7BxrAAXl94) , [strawpage](https://www.youtube.com/watch?v=gXPxYzJCU4I)
+[atabook](https://honalysia.atabook.org) , [random song](https://www.youtube.com/watch?v=B7BxrAAXl94) , [strawpage](https://www.youtube.com/watch?v=gXPxYzJCU4I)
 
 
 ╭───────── · · ![](https://64.media.tumblr.com/4c8c3b05c6d133e8ace28492895901ba/d5ed8321db4bd7a6-aa/s75x75_c1/6ffbe7f0f6271509f8c0aff15f5e49cb0aafa6d6.gif) · · ─────────╮
 
-![](https://images-ext-1.discordapp.net/external/l7-umi2NhOzFEjdShQJgk9rq1yAWRxL7FeOBYV3jusM/https/s3.ezgif.com/tmp/ezgif-3ac69e2feca455.gif) ![](https://images-ext-1.discordapp.net/external/imdm1tZZyYKo8KwEmh-7b49EfLR0ywtYOwzsxm-XbnA/https/s3.ezgif.com/tmp/ezgif-3363518e245ebc.gif) ![](https://images-ext-1.discordapp.net/external/wSVjSfb2JjOV0cHrB-ChA4Z5r2LvkXCel1iEZNOvFsw/https/s3.ezgif.com/tmp/ezgif-348eb9f9de8e7d.gif)
+![](https://files.catbox.moe/4eau1f.gif) ![](https://files.catbox.moe/q2nph3.gif) ![](https://s3.ezgif.com/tmp/ezgif-3c6cb0da345a383c.gif)
 
 ╰───────── · · ![](https://64.media.tumblr.com/4c8c3b05c6d133e8ace28492895901ba/d5ed8321db4bd7a6-aa/s75x75_c1/6ffbe7f0f6271509f8c0aff15f5e49cb0aafa6d6.gif) · · ─────────╯
 
